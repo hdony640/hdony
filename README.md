@@ -10,5 +10,5 @@
 
 ❤️ Playing The Last of Us
 
-[![Linkedin](https://i.stack.imgur.com/gVE0j.png) LinkedIn](linkedin.com/in/hadrien-dony-a02885a5)
+[![Linkedin](https://i.stack.imgur.com/gVE0j.png) LinkedIn](https://www.linkedin.com/)
 &nbsp;
